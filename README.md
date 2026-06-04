@@ -1,1 +1,1 @@
-# BaninaSeries9
+NORMAL QUANT TRADING
