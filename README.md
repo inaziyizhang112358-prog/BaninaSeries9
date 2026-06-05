@@ -1,1 +1,1 @@
-Intelligent Trojans
+Intelligent Trojans and Bluetooth Protection
